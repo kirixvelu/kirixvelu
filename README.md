@@ -12,4 +12,8 @@ An [Eelam Tamil](https://www.nationalia.info/profile/44/tamil-eelam) diaspora fr
 
 I love my city but hate poverty and homelessness. Always money for war, never for the poor. Brief [Tamil history](https://pearlaction.org/genocide-legal-briefing/).
 
+> ### Favorite Evergreen Quote
+>  “They Have Money For War But Can't Feed The Poor.”
+> > ― Tupac Shakur
+
 Making the world an inclusive place starts from my [neighborhood](https://scarboroughtenants.ca).
