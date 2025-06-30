@@ -4,9 +4,9 @@
 
 An Eelam Tamil diaspora from *Toronto, Canada*. 
 
-- 🔭 Currently working on few Jamstack DevOps
-- 💬 Ask me about anything... no bots please
-- 📫 How to reach me on the web: @kirixvelu
-- 😄 Pronouns: out of respect, just he/him
+- 🔭 Currently working on few [Jamstack](https://jamstack.org) DevOps
+- 💬 Ask me about anything... [no bots](https://psychcentral.com/lib/the-importance-of-connection) please
+- 📫 How to reach me on the web: [@kirixvelu](https://linktr.ee/kirixvelu)
+- 😄 Pronouns: out of [respect](https://pronouns.org), just he/him
 - ⚡ Fun fact: addicted to tea & [Thirukkural](https://thirukkural.io)
 
