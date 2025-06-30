@@ -1,6 +1,6 @@
-# Howdy, I'm Kiri 👋
-
 ![City of Toronto, 2025](https://raw.githubusercontent.com/kirixvelu/kirixvelu/refs/heads/main/toronto-1.webp)
+
+# Howdy, I'm Kiri 👋
 
 An Eelam Tamil diaspora from *Toronto, Canada*. 
 
