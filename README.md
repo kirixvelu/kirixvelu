@@ -10,7 +10,7 @@ An [Eelam Tamil](https://www.nationalia.info/profile/44/tamil-eelam) diaspora fr
 - 😄 Pronouns: out of [fairness](https://pronouns.org), just he/him
 - ⚡ Fun fact: addicted to tea & [Thirukkural](https://thirukkural.io)
 - 📚 Little [history](https://pearlaction.org/genocide-legal-briefing/) on how I got here
-- 🤔 Greatest fear: [climate crisis](https://davidsuzuki.org/our-work/) & degradation of [global economy](https://www.visionofhumanity.org/about/)
+- 🤔 Fear: [climate crisis](https://davidsuzuki.org/our-work/) & [perpetual wars](https://www.visionofhumanity.org/about/)
 
 I love my city but **hate poverty and homelessness**. A tiny project from my [neighborhood](https://scarboroughtenants.ca).
 
