@@ -2,7 +2,7 @@
 
 # Howdy, I'm Kiri 👋
 
-An Eelam Tamil diaspora from *Toronto, Canada*. 
+An [Eelam Tamil](https://www.nationalia.info/profile/44/tamil-eelam) diaspora from *Toronto, Canada*. 
 
 - 🔭 Currently working on few [Jamstack](https://jamstack.org) DevOps
 - 💬 Ask me about anything... [no bots](https://psychcentral.com/lib/the-importance-of-connection) please
