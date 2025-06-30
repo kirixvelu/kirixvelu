@@ -10,6 +10,6 @@ An [Eelam Tamil](https://www.nationalia.info/profile/44/tamil-eelam) diaspora fr
 - 😄 Pronouns: out of [fairness](https://pronouns.org), just he/him
 - ⚡ Fun fact: addicted to tea & [Thirukkural](https://thirukkural.io)
 
-I love my city but hate poverty and homelessness. Brief [Tamil history](https://pearlaction.org/genocide-legal-briefing/).
+I love my city but hate poverty and homelessness. Always money for war, never for the poor. Brief [Tamil history](https://pearlaction.org/genocide-legal-briefing/).
 
 Making the world an inclusive place starts from my [neighborhood](https://scarboroughtenants.ca).
