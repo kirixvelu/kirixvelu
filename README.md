@@ -12,7 +12,7 @@ An [Eelam Tamil](https://www.nationalia.info/profile/44/tamil-eelam) diaspora fr
 - 📚 Little [history](https://pearlaction.org/genocide-legal-briefing/) on how I got here
 ---
 
-I love my city but hate poverty and homelessness. Making the world an inclusive place starts from my [neighborhood](https://scarboroughtenants.ca).
+I love my city but hate poverty and homelessness. A tiny project from my [neighborhood](https://scarboroughtenants.ca).
 
 > ### favorite quote since highschool
 >  “They Have Money For War But Can't Feed The Poor.”
