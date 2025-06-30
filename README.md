@@ -4,7 +4,7 @@
 
 An Eelam Tamil diaspora from *Toronto, Canada*. 
 
-Nerd of modern tech, science and humanity. 
+> Nerd of modern tech, science and humanity. 
 
 Embrace **Jamstack** architecture for **web technology**.
 
