@@ -5,7 +5,7 @@
 An Eelam Tamil diaspora from *Toronto, Canada*. 
 
 - 🔭 Currently working on few Jamstack DevOps
-- 💬 Ask me about anything... really anything
+- 💬 Ask me about anything... no bots please
 - 📫 How to reach me on the web: @kirixvelu
 - 😄 Pronouns: out of respect, just he/him
 - ⚡ Fun fact: addicted to tea & Thirukkural
