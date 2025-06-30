@@ -11,8 +11,6 @@ An [Eelam Tamil](https://www.nationalia.info/profile/44/tamil-eelam) diaspora fr
 - ⚡ Fun fact: addicted to tea & [Thirukkural](https://thirukkural.io)
 - 📚 Little [history](https://pearlaction.org/genocide-legal-briefing/) on how I got here
 
---
-
 I love my city but hate poverty and homelessness. A tiny project from my [neighborhood](https://scarboroughtenants.ca).
 
 > ### favorite quote
