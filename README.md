@@ -12,4 +12,4 @@ An [Eelam Tamil](https://www.nationalia.info/profile/44/tamil-eelam) diaspora fr
 
 I love my city but hate poverty and homelessness. Brief [Tamil history](https://pearlaction.org/genocide-legal-briefing/).
 
-Making the world an inclusive place starts from my neighborhood.
+Making the world an inclusive place starts from my [neighborhood](https://scarboroughtenants.ca).
