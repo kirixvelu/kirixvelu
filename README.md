@@ -1,6 +1,6 @@
 # Howdy, I'm Kiri 👋
 
-An Eelam *Tamil* diaspora from *Toronto, Canada*. 
+An Eelam Tamil diaspora from *Toronto, Canada*. 
 
 Nerd of modern tech, science and humanity. 
 
