@@ -4,10 +4,6 @@
 
 An Eelam Tamil diaspora from *Toronto, Canada*. 
 
-> Nerd of modern tech, science and humanity. 
-
-Embrace **Jamstack** architecture for **web technology**.
-
 - 🔭 Currently working on few Jamstack tech
 - 💬 Ask me about anything... don't be shy
 - 📫 How to reach me online: @kirixvelu
