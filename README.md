@@ -8,5 +8,5 @@ An Eelam Tamil diaspora from *Toronto, Canada*.
 - 💬 Ask me about anything... no bots please
 - 📫 How to reach me on the web: @kirixvelu
 - 😄 Pronouns: out of respect, just he/him
-- ⚡ Fun fact: addicted to tea & Thirukkural
+- ⚡ Fun fact: addicted to tea & [Thirukkural](https://thirukkural.io)
 
