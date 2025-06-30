@@ -9,13 +9,13 @@ An [Eelam Tamil](https://www.nationalia.info/profile/44/tamil-eelam) diaspora fr
 - 📫 How to reach me on the web: [@kirixvelu](https://linktr.ee/kirixvelu)
 - 😄 Pronouns: out of [fairness](https://pronouns.org), just he/him
 - ⚡ Fun fact: addicted to tea & [Thirukkural](https://thirukkural.io)
-
+- 📚 Little [history](https://pearlaction.org/genocide-legal-briefing/) on how I got here
 ---
 
-I love my city but hate poverty and homelessness. Always money for war, never for the poor. Brief [Tamil history](https://pearlaction.org/genocide-legal-briefing/).
+I love my city but hate poverty and homelessness. Making the world an inclusive place starts from my [neighborhood](https://scarboroughtenants.ca).
 
-> ### Favorite Evergreen Quote
+> ### favorite quote since highschool
 >  “They Have Money For War But Can't Feed The Poor.”
 > ― Tupac Shakur
 
-Making the world an inclusive place starts from my [neighborhood](https://scarboroughtenants.ca).
+
