@@ -5,7 +5,7 @@
 An [Eelam Tamil](https://www.nationalia.info/profile/44/tamil-eelam) diaspora from [Toronto](https://www.toronto.ca), Canada. 
 
 - 🔭 Currently working on few [Jamstack](https://jamstack.org) DevOps
-- 💬 Ask me about anything... [no bots](https://psychcentral.com/lib/the-importance-of-connection) please
+- 💬 Ask me about [anything](https://github.com/kirixvelu/kirixvelu/discussions/1)... no bots please
 - 📫 How to reach me on the web: [@kirixvelu](https://linktr.ee/kirixvelu)
 - 😄 Pronouns: out of [fairness](https://pronouns.org), just he/him
 - ⚡ Fun fact: addicted to tea & [Thirukkural](https://thirukkural.io)
