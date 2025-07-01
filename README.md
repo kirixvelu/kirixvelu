@@ -9,7 +9,7 @@ An [Eelam Tamil](https://www.nationalia.info/profile/44/tamil-eelam) diaspora fr
 - 📫 How to reach me on the web: [@kirixvelu](https://linktr.ee/kirixvelu)
 - 😄 Pronouns: out of [fairness](https://pronouns.org), just he/him
 - ⚡ Fun fact: addicted to tea & [Thirukkural](https://thirukkural.io)
-- 📚 Brief [history](https://pearlaction.org/genocide-legal-briefing/) on how I got here
+- 📚 Brief [history](https://pearlaction.org/genocide-legal-briefing/) on why & how I got here
 - 🤔 Biggest fears: [climate crisis](https://davidsuzuki.org/our-work/) & [perpetual wars](https://www.visionofhumanity.org/about/)
 
 I love my city but poverty and homelessness. A tiny project from my [neighborhood](https://scarboroughtenants.ca).
