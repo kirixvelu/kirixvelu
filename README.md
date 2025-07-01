@@ -15,7 +15,7 @@ An [Eelam Tamil](https://www.nationalia.info/profile/44/tamil-eelam) diaspora fr
 I love my city but poverty and homelessness. A tiny project from my [neighborhood](https://scarboroughtenants.ca).
 
 > ##### Favorite Quote
->  “They have **money for war** but can't **feed the poor**.”
+>  They have **money for war** but can't **feed the poor**.
 > ― Tupac Shakur
 
 
