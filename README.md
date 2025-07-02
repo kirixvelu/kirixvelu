@@ -17,7 +17,7 @@ I love my city but poverty and homelessness. A tiny project from my [community](
 Recognize the privilage to ignore socioenomical injustice but complicity is too high of a threshold for me to stay silent.
 
 > #### Favorite Quote
->  They have money for war but can't feed the poor.
+>  They have money for war (free tuition) but can't feed the poor (worker insurance).
 > ― *Tupac Shakur*
 
 
