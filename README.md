@@ -14,6 +14,8 @@ An [Eelam Tamil](https://www.nationalia.info/profile/44/tamil-eelam) diaspora fr
 
 I love my city but poverty and homelessness. A tiny project from my [community](https://scarboroughtenants.ca).
 
+Recognize the privilage to ignore socioenomical injustices but complicity is too high of a threshold for me to reach.
+
 > #### Favorite Quote
 >  They have money for war but can't feed the poor.
 > ― *Tupac Shakur*
