@@ -12,7 +12,7 @@ An [Eelam Tamil](https://www.nationalia.info/profile/44/tamil-eelam) diaspora fr
 - 📚 Brief [history](https://pearlaction.org/genocide-legal-briefing/) on why & how I got here
 - 🤔 Biggest fears: [climate crisis](https://davidsuzuki.org/our-work/) & [perpetual wars](https://monthlyreview.org/2009/05/01/why-socialism/)
 
-I love my city but poverty and homelessness. A tiny project from my [neighborhood](https://scarboroughtenants.ca).
+I love my city but poverty and homelessness. A tiny project from my [community](https://scarboroughtenants.ca).
 
 > #### Favorite Quote
 >  They have money for war but can't feed the poor.
