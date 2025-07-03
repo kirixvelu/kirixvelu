@@ -20,4 +20,5 @@ Recognize the privilage to ignore socioenomical injustice but complicity is too 
 >  They have money for war *{free tuition}* but can't feed the poor *{worker benefits}*.
 > ― *Tupac Shakur*
 
-
+<br><br>
+![](https://komarev.com/ghpvc/?username=kirixvelu&label=Since+July+2025&style=flat-square)
