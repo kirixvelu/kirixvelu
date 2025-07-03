@@ -21,4 +21,4 @@ Recognize the privilage to ignore socioenomical injustice but complicity is too 
 > ― *Tupac Shakur*
 
 <br><br>
-![](https://komarev.com/ghpvc/?username=kirixvelu&label=Since+July+2025&style=flat-square)
+![](https://komarev.com/ghpvc/?username=kirixvelu&label=views+since+July+2025&style=flat-square)
