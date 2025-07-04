@@ -1,6 +1,5 @@
 ![City of Toronto, 2025](https://raw.githubusercontent.com/kirixvelu/kirixvelu/refs/heads/main/toronto-1.webp)
-[workflow](https://github.com/kirixvelu/kirixvelu/actions/workflows/greeting.yml/badge.svg
-)
+
 # Howdy, I'm Kiri 👋
 
 An [Eelam Tamil](https://www.nationalia.info/profile/44/tamil-eelam) diaspora from [Toronto](https://www.toronto.ca), Canada. 
