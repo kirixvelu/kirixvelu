@@ -22,5 +22,5 @@ I love my city but poverty and homelessness. A tiny project from my [community](
 > ― *Tupac Shakur*
 
 <p align=center>
-Recognize the privilage to ignore injustices but <br> complicity is too high of a threshold for my silence.
+Recognize the <em>privilage</em> to ignore injustices but <br> complicity is too high of a <em>threshold</em> for my silence.
 </p>
