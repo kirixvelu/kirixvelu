@@ -18,8 +18,8 @@ An [Eelam Tamil](https://www.nationalia.info/profile/44/tamil-eelam) diaspora fr
 I love my city but poverty and homelessness. A tiny project from my [community](https://scarboroughtenants.ca).
 
 > ### Favorite Quote >
->  They have money for war *free tuition* but can't feed the poor *worker benefits*. **/Tupac Shakur/**
+>  They have money for war *"free tuition"* but can't feed the poor *"worker benefits"*. -- **/Tupac Shakur/**
 
 <p align=center>
-Recognize the <em>privilage</em> to ignore injustice but <br> complicity is too high of a <em>threshold</em> for my silence.
+Recognize the <em>privilage</em> to ignore some injustice but <br> material complicity is too high of a <em>threshold</em> for my silence.
 </p>
