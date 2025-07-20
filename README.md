@@ -21,5 +21,5 @@ I love my city but poverty and homelessness. A tiny project from my [community](
 >  They have money for war *"free tuition"* but can't feed the poor *"worker benefits"*. -- **/Tupac Shakur/**
 
 <p align=center>
-Recognize the <em>privilage</em> to ignore peripheral injustice but <br> material complicity is too high of a <em>threshold</em> for personal silence.
+Recognize the <em>privilage</em> to ignore peripheral injustice but <br> material complicity is too high of a <em>threshold</em> to alter personal experience.
 </p>
