@@ -22,5 +22,5 @@ I love my city but poverty and homelessness. A tiny project from my [community](
 > They have money for war _"free tuition"_ but can't feed the poor _"worker benefits"_. **/Tupac Shakur/**
 
 <p align=center>
-~ Recognize the <em>privilage</em> to debate injustice but <br> material complicity is an inadequate <em>anesthesia</em> to alter my experience ~
+~ Recognize the <em>privilage</em> to debate injustice but <br> material complicity is an inadequate <em>anesthesia</em> to alter my reality ~
 </p>
