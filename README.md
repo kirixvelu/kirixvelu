@@ -4,7 +4,7 @@
 
 [![Greetings](https://github.com/kirixvelu/kirixvelu/actions/workflows/greetings.yml/badge.svg)](https://github.com/kirixvelu/kirixvelu/actions/workflows/greetings.yml) ![](https://komarev.com/ghpvc/?username=kirixvelu&label=views+since+07/2025)
 
-An [Eelam Tamil](https://www.nationalia.info/profile/44/tamil-eelam) diaspora from [Toronto](https://www.toronto.ca), Canada. 
+An [Eelam Tamil](https://www.nationalia.info/profile/44/tamil-eelam) diaspora from [Toronto](https://www.toronto.ca), Canada.
 
 - 🔭 Currently working on [Jamstack](https://jamstack.org) DevOps
 - 💬 Ask me about [anything](https://github.com/kirixvelu/kirixvelu/discussions/1)... no bots please
@@ -18,8 +18,9 @@ An [Eelam Tamil](https://www.nationalia.info/profile/44/tamil-eelam) diaspora fr
 I love my city but poverty and homelessness. A tiny project from my [community](https://scarboroughtenants.ca).
 
 > #### Favorite Quote
->  They have money for war *"free tuition"* but can't feed the poor *"worker benefits"*. **/Tupac Shakur/**
+>
+> They have money for war _"free tuition"_ but can't feed the poor _"worker benefits"_. **/Tupac Shakur/**
 
 <p align=center>
-~ Recognize the <em>privilage</em> to debate injustice but <br> material complicity is an inadequate <em>anesthesia</em> to alter life experience ~
+~ Recognize the <em>privilage</em> to debate injustice but <br> material complicity is an inadequate <em>anesthesia</em> to alter my experience ~
 </p>
