@@ -2,8 +2,6 @@
 
 # Howdy, I'm Kiri 👋
 
-[![Greetings](https://github.com/kirixvelu/kirixvelu/actions/workflows/greetings.yml/badge.svg)](https://github.com/kirixvelu/kirixvelu/actions/workflows/greetings.yml) ![](https://komarev.com/ghpvc/?username=kirixvelu&label=views+since+07/2025)
-
 An [Eelam Tamil](https://www.nationalia.info/profile/44/tamil-eelam) diaspora from [Toronto](https://www.toronto.ca), Canada.
 
 - 🔭 Currently working on [Jamstack](https://jamstack.org) DevOps
